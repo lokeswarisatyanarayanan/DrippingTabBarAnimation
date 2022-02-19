@@ -10,4 +10,4 @@
 
 ### Here's how it turned out! 
 
-![Alt Text](https://media.giphy.com/media/eeBktxrzcGl5sqiFVf/giphy.gif)
+![Alt Text](https://media.giphy.com/media/cPDC2EtkFCeblY84Dz/giphy.gif)
